@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **jol.alvarezc@gmail.com**
 
-- ⚡ Fun fact **My friends call me "Bester" because it was my nickname as a semi-professional eSports Player 👾**
+- ⚡ Fun fact **My friends call me "Bester" because it was my nickname as a semi-professional esports Player 👾**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
