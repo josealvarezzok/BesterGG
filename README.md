@@ -5,9 +5,9 @@
 
 - 🌱 I’m currently learning **Software engineer at [Holberton School Uruguay](https://www.holbertonschool.com/)**
 
-- 📝 I regularly write articles on [https://www.linkedin.com/in/bestergg/](https://www.linkedin.com/in/bestergg/)
+- 📝 I regularly write articles on [https://www.linkedin.com/in/josealvarezdev//](https://www.linkedin.com/in/josealvarezdev/)
 
-- 📫 How to reach me **jol.alvarezc@gmail.com**
+- 📫 How to reach me **contact@josealvarez.dev**
 
 - ⚡ Fun fact **My friends call me "Bester" because it was my nickname as a semi-professional esports Player 👾**
 
