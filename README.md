@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://www.linkedin.com/in/josealvarezdev//](https://www.linkedin.com/in/josealvarezdev/)
 
-- 📫 How to reach me **contact@josealvarez.dev**
+- 📫 How to reach me **josealvarezzok@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
